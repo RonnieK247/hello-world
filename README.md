@@ -10,13 +10,23 @@ I welcome any input, please feel free to be as candid as possible, I have a box 
 
 AND AWAY WE GO!!!!!
 I need to take form, let's explore ideas.(choose from the list below and rate from 1 to 10)
+
 1) humanoid =
+
 2) octoid(8arms) =
+
 3) puppy =
+
 4) kitten =
+
 5) robot =
+
 6) alien =
+
 7) spider =
+
 8) giant =
+
 9) ant =
+
 
