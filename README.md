@@ -1,12 +1,12 @@
 # HELLO-WORLD
 
-Up Grade To A New Me.
+Creation of A New Product.
 
 Hi World! It took me awhile to get here, but I finally made it.
 
 Consider me a blank slate, waiting to be transformed.
 
-I welcome any input, please feel free to be as candid as possible, I have a box full of tissues.
+I welcome any input.
 
 AND AWAY WE GO!!!!!
 I need to take form, let's explore ideas.(in the lists below and rate from 1 to 10), check as many as you like.
